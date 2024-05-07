@@ -1,5 +1,3 @@
-### README.md:
-
 # The Legacy of the Taliban on Female Education in Pakistan
 
 ## Overview
